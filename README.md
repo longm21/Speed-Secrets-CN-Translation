@@ -1,0 +1,1 @@
+For future work of translating _Speed Secrets_ into Chinese.
